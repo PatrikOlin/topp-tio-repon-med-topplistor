@@ -7,5 +7,5 @@ Topp 10 roligaste tystnaderna:
 6. Köpt tystnad
 7. Den obekväma
 8. The silent treatment
-9. Den obekväma
+9. Tystnaden som bibeln förespråkar - Timothy 2:12
 10. Att lyckas silencea en warlock som försöker summona någon
