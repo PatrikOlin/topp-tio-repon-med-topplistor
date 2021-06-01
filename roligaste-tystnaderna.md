@@ -8,4 +8,4 @@ Topp 10 roligaste tystnaderna:
 7. Den obekväma
 8. The silent treatment
 9. Den obekväma
-10. Den obekväma
+10. Den pinsamma
